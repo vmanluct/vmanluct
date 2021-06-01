@@ -1,1 +1,1 @@
-B.S. in Mathematics and Computer Science. I like to make video games, and Artificial Intelligence
+Hey, I'm Vincent, I'm a Computer Science and Mathematics student that likes to make video games, and add artificial intelligence to games. I would love to work with others to make better video games, and artificial intelligence.
